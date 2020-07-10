@@ -1,7 +1,5 @@
-胶己人
-
 🏀
 
-Resolver
+Resolver 👊
 
 30
